@@ -3,7 +3,7 @@
 ### Full Name
 **Levchenko Valeriia Mikhailovna**
 ### Contacts
-Email: iookowashere@gmail.com <br>
+E-mail: iookowashere@gmail.com <br>
 Telegram: @iookowashere
 ### Brief Self-Introduction
 At the moment, I am in search of what I really like to do and what inspires me. Programming is one of those hobbies that I love.
